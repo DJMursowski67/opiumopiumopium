@@ -1,3 +1,3 @@
 # opiumopiumopium dog shit ass cheat 2025 development 😒😒😒😒😒
 
-# we are just vibecoding ts atp
+# IF ANYONE SAYS I CRACKED IT NO NIGA THIS IS ALREADY LEAKED JUST NIGAS WERE HORNY TO USE IT SO HERE IS SOME SHITTY V2 LEAK
